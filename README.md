@@ -56,5 +56,6 @@
 
 ![](https://github.com/JennyCCDD/framework_for_oil_investment/blob/master/PPT/%E5%B9%BB%E7%81%AF%E7%89%8728.PNG)
 
-
 ![](https://github.com/JennyCCDD/framework_for_oil_investment/blob/master/PPT/%E5%B9%BB%E7%81%AF%E7%89%8729.PNG)
+
+![](https://github.com/JennyCCDD/framework_for_oil_investment/blob/master/PPT/%E5%B9%BB%E7%81%AF%E7%89%8730.PNG)
